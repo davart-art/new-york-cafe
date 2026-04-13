@@ -1,0 +1,1 @@
+New York Cafe Brașov este locul ideal pentru relaxare și distracție. Oferă cafea importată de calitate, băuturi variate și activități precum biliard și darts. Atmosfera este plăcută, iar personalul amabil, perfect pentru ieșiri cu prietenii sau lucru pe laptop.
